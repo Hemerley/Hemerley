@@ -43,7 +43,7 @@ A post-collapse science-fantasy epic exploring fractured realities and authorita
 
 ## 🌐 Connect With Me
 📬 [Email](mailto:hemerley.dev@gmail.com)  
-🌐 [LinkedIn](https://www.linkedin.com/in/hemerley/) *(optional)*  
+🌐 [LinkedIn](https://www.linkedin.com/in/brandon-hemerley-39b2402a6)
 📂 [Resume & Portfolio Site](#coming-soon)
 
 ---
